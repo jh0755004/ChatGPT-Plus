@@ -1,8 +1,9 @@
-# ChatGPT Plus 最新订阅教程 – 国内适用
+# ChatGPT Plus 最新订阅教程 – 国内适用 [2025年11月更新]
 
 随着人工智能技术的发展，ChatGPT Plus 提供了更加高级的功能和优先支持服务，吸引了大量用户订阅。本文将详细介绍如何在国内订阅 ChatGPT Plus，帮助用户顺利完成订阅并享受高级功能。
 
-![image](https://github.com/jh0755004/ChatGPT-Plus/assets/169751950/cfff534a-e5ce-464b-b509-85414f65344b)
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/93cd36cc-6ca0-4825-a18b-b04e1d3dd344" />
+
 
 ## 1. 确认基本需求
 
